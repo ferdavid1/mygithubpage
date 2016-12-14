@@ -1,1 +1,1 @@
-# mygithubpage
+Friend's personal site
